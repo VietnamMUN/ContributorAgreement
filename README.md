@@ -15,4 +15,4 @@ to collect, collate, and archive the happenings of the community,
 
 ### HAVE RESOLVED TO COMBINE OUR EFFORTS TO ACCOMPLISH THESE AIMS AT VIETNAMMUN.ORG
 
-[Signed](./SIGNATURES.md)
+#### [Signed here](./SIGNATURES.md)
