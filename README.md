@@ -11,4 +11,6 @@ to oster various skills of critical thinking and debate and communication and se
 
 to share the results and celebrate the achievements of the community,
 
+to collect, collate, and archive the happenings of the community,
+
 ### HAVE RESOLVED TO COMBINE OUR EFFORTS TO ACCOMPLISH THESE AIMS AT VIETNAMMUN.ORG
