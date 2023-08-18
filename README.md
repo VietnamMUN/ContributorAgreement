@@ -14,3 +14,5 @@ to share the results and celebrate the achievements of the community,
 to collect, collate, and archive the happenings of the community,
 
 ### HAVE RESOLVED TO COMBINE OUR EFFORTS TO ACCOMPLISH THESE AIMS AT VIETNAMMUN.ORG
+
+[Signed](./SIGNATURES.md)
