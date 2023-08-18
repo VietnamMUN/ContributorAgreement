@@ -1,6 +1,5 @@
 # Contributor Agreement of VietnamMUN.org
 
-## Preamble 
 ### INDIVIDUALS CONTRIBUTING TO VIETNAMMUN.ORG AGREES
 
 to continue promote and advocate the values and practices of the United Nations and Model UN in Vietnam, and
